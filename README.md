@@ -2,7 +2,7 @@
 - 👀 I’m interested in sleeping when i am tired
 - 🌱 I’m currently learning many thing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me -i dont like people :0
+- 📫 How to reach me .......
 
 <!---
 anshika1012jaiswal/anshika1012jaiswal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
